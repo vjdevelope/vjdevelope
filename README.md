@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hey..! I am Vaibhav Jadhav
 I am a dedicated Computer Engineering student at MIT Academy of Engineering Currently in my third year.I am passionate & Enthusiastic to learn new Technologies.I am Interested in pursuing career as a Software Engineer in multinational corporation, where I can use my knowledge and skills to solve the industrial problems and to create Impactful Solutions. My goal is to learn and grow up.
 
 
